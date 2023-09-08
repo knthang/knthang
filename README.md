@@ -1,0 +1,4 @@
+- My name: Kiều Nhật Thắng (@knthang)
+- DOB: 24/03/2002
+- Studying at FPT Polytechnic
+- How to reach me -> thangkn24@gmail.com
